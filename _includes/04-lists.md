@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Gaming PC
+* Monitors
+  * Dell 24 inch
+  * Dell 24 inch
+* Gaming Chair
